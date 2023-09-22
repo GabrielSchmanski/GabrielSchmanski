@@ -11,7 +11,7 @@ Meu nome é Gabriel Carlin Schmanski
 
 gabriel.schmanski@escola.pr.gov.br
 
-Istagram: @gabrielschmanski
+Instagram: @gabrielschmanski
 
 
 ![](https://media.tenor.com/ZhNS9wwvR2gAAAAd/bellingham-real-madrid.gif)
